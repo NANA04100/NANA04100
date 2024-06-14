@@ -6,5 +6,7 @@ boa tarde
 boa noite
 Bem vindo/e ao meu perfil
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~
-![](![image](https://github.com/NANA04100/NANA04100/assets/172805163/b211ddd7-86f8-4ac5-b976-79f36797124e)
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~[
+
+
+![](https://media1.tenor.com/m/CD86JkXUoDcAAAAC/dungeon-meshi-delicious-in-dungeon.gif)
